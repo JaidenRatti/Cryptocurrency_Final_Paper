@@ -1,2 +1,2 @@
 # Cryptocurrency_Final_Paper
-Final Essay for ENGL-109
+Final Essay for ENGL-109.
